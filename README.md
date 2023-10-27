@@ -8,7 +8,7 @@
 - Residency: Podgorica, Montenegro
 - Age: 32 years old
 - Tel: +382-67-167-583 (Viber)
-- Telegram/WhatsApp: +7-925-270-16-26
+- Telegram/WhatsApp: [+7-925-270-16-26](https://t.me/ShurikSl)
 - E-mail: [Alexandra.slob@gmail.com](mailto:Alexandra.slob@gmail.com)
 
 **Languages:**
@@ -38,6 +38,7 @@ Detail-oriented and organized English-Russian translator with a strong foundatio
 
 # Professional Experience
 
+
 ## Document Controller on a Warehouse Construction Project
 **IKEA | Esipovo (Moscow Region, Russia) | 2018-2022**
 
@@ -54,14 +55,15 @@ Detail-oriented and organized English-Russian translator with a strong foundatio
 **IKEA | Moscow | 2014-2018**
 
 - Managed day-to-day administrative tasks for the business unit, including:
-  - Vendor Management: Liaised with vendors and suppliers, negotiated contracts, and managed procurement processes to optimize cost-efficiency and maintain strong vendor relationships.
-  - Prepared contract drafts, budgets, focusing on payment control to maximize the utilization of financial resources.
-  - Supervised a team of 3 cleaning service contractors, ensuring high-quality service delivery.
-  - Managed the reception desk, overseeing the work of 2 receptionists.
-  - Organized and maintained an efficient archive system, facilitating easy document retrieval when needed.
-  - Ensured compliance with company policies and regulatory requirements by maintaining accurate records and documentation, which facilitated audits and regulatory inspections.
-  - Prepared labor protection orders and Personal Protective Equipment (PPE) cards to guarantee safety compliance for all employees.
-  - Maintained department timesheets.
+- Vendor Management: Liaised with vendors and suppliers, negotiated contracts, and managed procurement processes to optimize cost-efficiency and maintain strong vendor relationships.
+- Prepared contract drafts, budgets, focusing on payment control to maximize the utilization of financial resources.
+- Supervised a team of 3 cleaning service contractors, ensuring high-quality service delivery.
+- Managed the reception desk, overseeing the work of 2 receptionists.
+- Organized and maintained an efficient archive system, facilitating easy document retrieval when needed.
+- Ensured compliance with company policies and regulatory requirements by maintaining accurate records and documentation, which facilitated audits and regulatory inspections.
+- Prepared labor protection orders and Personal Protective Equipment (PPE) cards to guarantee safety compliance for all employees.
+- Maintained department timesheets.
+
 
 
 
